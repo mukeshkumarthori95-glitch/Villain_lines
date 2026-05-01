@@ -1,6 +1,6 @@
 # 🌑 The Villain Writes 🌑
 
-![Main Image](49fd7cfdf04001deb30b23995ba5d115) 
+![Main Image]49fd7cfdf04001deb30b23995ba5d115.jpg
 
 > ### **Shayari: Dagabaazi**
 > Hai kami mujhme toh isko mai hi pura karunga...  
